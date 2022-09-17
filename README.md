@@ -1,1 +1,0 @@
-# Analyze-Death-Age-Difference-of-Right-Handed-with-Left-Handed
